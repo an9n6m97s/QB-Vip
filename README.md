@@ -1,3 +1,3 @@
 # 💻 QB-Vip 💻
 Preview:
-https://imgur.com/a/W4UMTDN
+https://i.imgur.com/ZLTaKW8.png
